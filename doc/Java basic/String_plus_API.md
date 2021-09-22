@@ -1,1 +1,1 @@
-# Autor Novotny + Erik
+# Autor Novotny + Erik + Mirek
